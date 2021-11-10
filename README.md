@@ -2,9 +2,8 @@
 
 ## J'adore surfer !
 
-_lololol_
-**gti gti**
+# ~~FLORIAN~~
 
-'trtrrtgf'
+# ~~FLORIAN~~
 
 # ~~FLORIAN~~
